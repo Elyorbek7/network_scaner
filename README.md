@@ -1,0 +1,1 @@
+Tarmoq skaneri dasturi
